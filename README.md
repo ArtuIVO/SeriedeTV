@@ -13,4 +13,4 @@ victoria ya que aun esta en desarrollo de trama y todos estan al margen de equiv
 
 Si quieren ver la serie se encuentra en el link de a la par 👉 : https://www.hbomax.com/gt/es 
 
-![img.png](img.png)
+![img.png](img.png) ![img_1.png](img_1.png)
